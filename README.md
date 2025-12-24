@@ -1,2 +1,4 @@
 Bei Interesse Einlösens bitte eine Woche davor bescheid sagen. 
-Änderungen vorbehalten
+Änderungen vorbehalten.
+
+Wünschen können geäußert werden.
