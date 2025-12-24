@@ -1,2 +1,2 @@
-Bei Interesse Einlösens bitte eine Woche davor bescheid sagen
+Bei Interesse Einlösens bitte eine Woche davor bescheid sagen. 
 Änderungen vorbehalten
